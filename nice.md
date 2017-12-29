@@ -15,11 +15,11 @@
 
 其他地区观众可以通过当地频道观看。
 
-2017神韵交响乐巡演预告片：
-<IMG SRC="img/2017-sy-01.jpg" width=447>
+2017神韵交响乐巡演预告片：<p>
+ <A HREF="download/2017symusic.mp4"><IMG SRC="img/2017-sy-01.jpg" width=447><a>
 
 
-2016年神韵交响乐巡演预告片：
+2016年神韵交响乐巡演预告片：<br>
 <IMG SRC="img/2016-sy-01.jpg" width=447>
 
 
