@@ -1,3 +1,7 @@
+<h1 align="center"><b>【新唐人独家播出】神韵交响乐团圣诞和新年音乐会</b></h1>
+<IMG SRC="img/p8597381a924093549-1.jpg" width=880>
+
+<hr>
 <h1 align="center"><b>新唐人直播预告：2018跨年缤纷夜</b></h1>
 <IMG SRC="img/DJY-600X400-1.jpg" width=880>
  
