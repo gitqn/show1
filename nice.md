@@ -6,7 +6,6 @@
     - <a href='https://github.com/no1show/show1/blob/master/fanQing/zi_you_men_7.62_desktop.zip?raw=true'>桌机版7.62</a>
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'>iPhone與Android免費下載 iNTD</a>    
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/Green_iPPOTV.exe?raw=true'>爱博电视PC版</a> 
-<h1 align="center"><b>【新唐人独家播出】神韵交响乐团圣诞和新年音乐会</b></h1>
 
 <h1 align="center"><b>【新唐人独家播出】神韵交响乐团圣诞和新年音乐会</b></h1>
 
