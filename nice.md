@@ -6,10 +6,8 @@
     - <a href='https://github.com/no1show/show1/blob/master/fanQing/zi_you_men_7.62_desktop.zip?raw=true'>桌机版7.62</a>
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/Green_iPPOTV.exe?raw=true'>爱博电视PC版</a>   
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'>新唐人安卓版</a>
-    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'><img src='fanQing/intdtvsp1.jpg'></a>
-    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'><img src='fanQing/intdtv.jpg'></a> 
-
-
+    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'>新唐人安卓版2.1.12sp1 下载(大陆有程序被自动删除或隐藏的安卓产品)</a>
+    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'>新唐人安卓版2.1.12 下载(海外产的安卓产品，及大陆不存在程序被自动删除的安卓产品)</a> 
 <h1 align="center"><b>【新唐人独家播出】神韵交响乐团圣诞和新年音乐会</b></h1>
 
 【新唐人北京时间2017年12月21日讯】圣诞节及新年期间（12月24日至1月1日），新唐人电视台将独家播出神韵交响乐音乐会过去两年（2015年和2016年）巡演的节目。
