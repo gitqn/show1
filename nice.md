@@ -7,10 +7,23 @@
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/Green_iPPOTV.exe?raw=true'>爱博电视PC版</a>   
 + <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'>新唐人安卓版</a>
     - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'>新唐人安卓版2.1.12sp1 下载(大陆有程序被自动删除或隐藏的安卓产品)</a>
-    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'>新唐人安卓版2.1.12 下载(海外产的安卓产品，及大陆不存在程序被自动删除的安卓产品)</a> 
+    - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'>新唐人安卓版2.1.12 
+
+<a href="https://github.com/syshow/5tuan/blob/master/download/Shen%20Yun%202018%20Official%20Trailer%201%20-%20Rediscover%20the%20Power%20of%20Art.mp4?raw=true"><img src="img/sy2018.jpg" width=880></a>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><a href="https://github.com/syshow/5tuan/blob/master/5tuan.md"><img scr="img/2018shenyun.jpg"></a></td>
+</tr>
+<tr>
+<td align="center">神韵艺术团是全球顶级中国古典舞与传统音乐艺术团。2006年成立于美国纽约，神韵艺术团云集了大批菁英艺术家，为恢复与弘扬中国传统文化艺术，不断缔造新的奇蹟与辉煌，倍受世人瞩目。</td>
+</tr>
+</tbody>
+</table> 
 
 <h1 align="center"><b>新唐人直播预告：2018跨年缤纷夜</b></h1>
-<IMG SRC="img/DJY-600X400-1.jpg" width=880>
+<IMG SRC="img/DJY-600X400-1.jpg" width=880>  
  
  【新唐人北京时间2017年12月24日讯】在2017年即将过去、2018年到来之际，新唐人电视台特别企划《2018跨年缤纷夜》直播特别节目，在2017年的最后一个夜晚，12月31日陪伴观众盘点年度大事件，欢欢喜喜迎新年。
 
