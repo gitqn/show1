@@ -9,7 +9,7 @@
     - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TVsp1.apk?raw=true'>新唐人安卓版2.1.12sp1 下载(大陆有程序被自动删除或隐藏的安卓产品)</a>
     - <a href='https://github.com/no1show/show1/blob/master/fanQing/iNTD_TV.apk?raw=true'>新唐人安卓版2.1.12 
 
-<a href="https://github.com/syshow/5tuan/blob/master/download/Shen%20Yun%202018%20Official%20Trailer%201%20-%20Rediscover%20the%20Power%20of%20Art.mp4?raw=true"><img src="img/sy2018.jpg" width=880></a>
+<a href="http://118.161.48.86/sy"><img src="img/sy2018.jpg" width=880></a>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
