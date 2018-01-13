@@ -23,7 +23,7 @@
 </table> 
 
 <hr>
-<a href="http://114.37.27.190"><IMG SRC="img/red-979573-1-600x400-0113-1.jpg" width=880><br>
+<IMG SRC="img/red-979573-1-600x400-0113-1.jpg" width=880><br>
     
 <hr>
 <h1 align="center"><b>新唐人直播预告：2018跨年缤纷夜</b></h1>
