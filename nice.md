@@ -32,7 +32,7 @@
 + <a href='http://114.37.27.190/mp4/news668/2016/02/concat6682.mp4'>【神韵演出特别报导】《三》</a>
 
 <hr>
-<a href="http://114.37.27.190"><IMG SRC="img/red-979573-1-600x400-0106-1.jpg" width=880><br>
+<a href="http://114.37.27.190"><IMG SRC="img/red-979573-1-600x400-0113-1.jpg" width=880><br>
     
 <hr>
 <h1 align="center"><b>新唐人直播预告：2018跨年缤纷夜</b></h1>
