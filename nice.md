@@ -27,7 +27,7 @@
 </table> 
 
 <hr>
-<IMG SRC="img/red-979573-1-600x400-0116-2.jpg" width=880><br>
+<IMG SRC="img/red-979573-1-600x400-0120.jpg" width=880><br>
     
 <hr>
 <h1 align="center"><b>新唐人直播预告：2018跨年缤纷夜</b></h1>
