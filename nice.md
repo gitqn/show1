@@ -1,6 +1,6 @@
 
 
-<a href="https://git.io/wh">https://git.io/wh<img src="img/sy2018.jpg" width=880></a>
+<a href="https://git.io/wh"><img src="img/sy2018.jpg" width=880></a>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
