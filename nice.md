@@ -12,7 +12,7 @@
 <td align="center"><IMG SRC="img-2/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640></td>
 </tr>
 <tr>
-<td align="center">薄熙来案的核心内幕是政变密谋和活摘器官罪恶。 (Photo by Feng Li/Getty Images)</td>
+<td align="center" width=640>薄熙来案的核心内幕是政变密谋和活摘器官罪恶。 (Photo by Feng Li/Getty Images)</td>
 </tr>
 </tbody>
 </table>
