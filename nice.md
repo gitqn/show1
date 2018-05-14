@@ -6,16 +6,13 @@
 <hr>
 <h1 align="center">重庆医大原校长落马涉薄案核心内幕</b></h1>
 
-<table border="0" cellspacing="3" cellpadding="3" align="center">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="img-2/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640></td>
-</tr>
-<tr>
-<td align="center" width=640>薄熙来案的核心内幕是政变密谋和活摘器官罪恶。 (Photo by Feng Li/Getty Images)</td>
-</tr>
-</tbody>
-</table>
+<div align="center">
+<IMG SRC="img-2/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640>
+</div>
+
+<div align="center" width=640>薄熙来案的核心内幕是政变密谋和活摘器官罪恶。 (Photo by Feng Li/Getty Images)</div>
+<p>
+
 
 【大纪元2018年05月14日讯】5月13日，中纪委官网通报，重庆医科大学原校长雷寒被查。当前重庆官场正在全面彻底肃清各种“流毒”中，今次落马的雷寒应该可以归为薄熙来名下。
 
