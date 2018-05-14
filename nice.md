@@ -6,7 +6,7 @@
 <hr>
 <h1 align="center">重庆医大原校长落马涉薄案核心内幕</b></h1>
 
-<table border="0" cellspacing="3" cellpadding="3">
+<table border="0" cellspacing="3" cellpadding="3" align="center">
 <tbody>
 <tr>
 <td align="center"><IMG SRC="img-2/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640></td>
