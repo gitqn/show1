@@ -3,7 +3,7 @@
 
 <h4><a href="http://www.shenyun.com">观看最新的〝神韵晚会〃，请到当地剧院买票观看，演出行程可以查询：http://www.shenyun.com</a></h4>
 
-<h1><b>毁人不倦的“党妈妈”</b></h1>
+<h1 align="center">毁人不倦的“党妈妈”</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
