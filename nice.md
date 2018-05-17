@@ -6,8 +6,8 @@
 <hr>
 <h1 align="center">修大法让“女强人”成了好婆婆</b></h1>
 
-<div align=center><img src="img-2/68936c9253b1d4c8b8222ceb76e30b6d.jpg" width=640></div>
-<div align=center><《法轮功》这本天书使她的脾气暴躁、求名求利、爱面子，特别自我的人，脱胎换骨的变了。（fotolia）/div><p>
+<div align=center><img src="img-2/68936c9253b1d4c8b8222ceb76e30b6d.jpg" width=640></img></div>
+<div align=center><《法轮功》这本天书使她的脾气暴躁、求名求利、爱面子，特别自我的人，脱胎换骨的变了。（fotolia）</div><p>
   
  千百度
  
