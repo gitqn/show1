@@ -5,7 +5,7 @@
 <hr>
 <h1 align="center">解体中共 重塑中华民族辉煌</b></h1>
 
-<div align=center><img src="img-2/7c6eab3b8d1dabee49b4ae18b00eada9-600x400.jpg" width=640></img></div>
+<div align=center><img src="img/7c6eab3b8d1dabee49b4ae18b00eada9-600x400.jpg" width=640></img></div>
 <div align=center>4月8日，悉尼退党服务中心代表李元华先生在“三亿退党大潮与《共产主义的终极目的》研讨会”上发言。（安平雅／大纪元）</div><p>
 
 文:李元华
@@ -18,7 +18,7 @@
 
 2004年11月19日，大纪元发表系列社论《九评共产党》（以下简称《九评》），《九评》以崭新的视角及高度，系统地剖析中共不光彩的起家、谎言与暴力、暴政与杀戮、及邪教和流氓本性。《九评》揭露了中共给中华民族和全人类带来的深重灾难，在中国及世界各领域，包括政治、历史、经济、文化、道德、宗教等引起极大的反思与震动。在种种“九评震撼”中，尤以触发中国广大民众退出共产党及相关组织的和平自我精神觉醒救赎的“退党大潮”最为波澜壮阔。迄今，《九评共产党》已被翻译成三十多种语言，在许多国家出版。在全球一百多个城市，举行了五千多场“九评”研讨会、新闻发布会、集会、图片展等活动，共有上万名专家、学者、政要、媒体人、共产主义受害者演讲发声、揭露共产主义罪行。
 
-<div align=center><img src="img-2/6-5-600x344.jpg" width=640></img></div>
+<div align=center><img src="img/6-5-600x344.jpg" width=640></img></div>
 <div align=center>李元华首先回顾了三退大潮发展的历史，并解释了三退人数的记录情况。（安平雅／大纪元）</div><p>
 
 《九评》发表 9 天后，2004年11月28日，大纪元收到第一份来自读者的退党声明。2005年 1月1日 tuidang.epochtimes.com 退党网站建立，作为发表三退声明 的平台和记录历史的资料库。每一条声明都独一无二，通过日期、时间（精确到 秒）、姓名、位置和声明内容区分。每条声明都有一个数字身份证明，也作为退出中国共产党组织总人数的计数统计。统计数字即时在网站上更新，为确保资料的安 全和可靠，网站维护独立服务器，并开发特别的软件用以资料分析。
@@ -104,7 +104,7 @@
 
 <b>五、解体中共，重塑中华民族辉煌</b>
   
-<div align=center><img src="img-2/f2b7937260e38dcf1696947624c2a56a-600x391.jpg" width=640></img></div>
+<div align=center><img src="img/f2b7937260e38dcf1696947624c2a56a-600x391.jpg" width=640></img></div>
 <div align=center>李元华在发言中表示，中共政权是整个中国历史上最黑暗的、最邪恶的政权。当中共退出历史的舞台，中国将迎接中华民族的复兴。（安平雅／大纪元）</div><p>
 
 许多人担心如果中共瓦解，谁能替代它管理中国；有些人甚至害怕中国会陷入另一场内战之中。还有一些希望中共保留权利越久越好的商人和政客，这样他们就可以继续为了自己的利益欺压人民，侵占资源。
@@ -159,7 +159,7 @@
 <hr>
 <h1 align="center">修大法让“女强人”成了好婆婆</b></h1>
 
-<div align=center><img src="img-2/68936c9253b1d4c8b8222ceb76e30b6d.jpg" width=640></img></div>
+<div align=center><img src="img/68936c9253b1d4c8b8222ceb76e30b6d.jpg" width=640></img></div>
 <div align=center>《法轮功》这本天书使她的脾气暴躁、求名求利、爱面子，特别自我的人，脱胎换骨的变了。（fotolia）</div><p>
   
  文:千百度
@@ -411,7 +411,7 @@
 
 <hr>
 <h1 align="center">“褒扬”与“迫害”的对比</b></h1>
-<div align="center"><img src="img-2/1804220948282384-600x400.jpg" width=640></div>
+<div align="center"><img src="img/1804220948282384-600x400.jpg" width=640></div>
 
 <div align="center">台湾法轮大法学会2018年4月22日举办全球声援三亿人退出中共党、团、队暨纪念“4.25”中国法轮功学员和平上访19周年活动。图为法轮功学员在台北游行。（陈柏州／大纪元） </div><p>
 
@@ -477,7 +477,7 @@
 
 <hr>
 <h1 align="center">世界绕川普转 川普围什么转</b></h1>
-<div align="center"><img src="img-2/000_1404VF-600x400.jpg" width=640></div>
+<div align="center"><img src="img/000_1404VF-600x400.jpg" width=640></div>
 
 <div align="center">国际舞台上，世界如今都在围绕着美国总统川普在转；那么，川普又在围绕着什么在转呢？(Getty Images) </div><p>
   
@@ -510,7 +510,7 @@
 <hr>
 <h1 align="center">中共送的马克思雕像被焚烧意味着什么？</b></h1>
 
-<div align="center"><img src="img-2/p8839942a342665171-ss-600x400.jpg" width=640></div>
+<div align="center"><img src="img/p8839942a342665171-ss-600x400.jpg" width=640></div>
 
 <div align="center">中共2018年5月5日向马克思的出生地德国特里尔市赠送了一座马克思的铜像被人纵火焚烧，再清楚不过的表明了一点，那就是明白真相的人对马克思主义和以当代马克思主义自居的中共的厌恶与唾弃。图为特里尔市尚未揭幕的马克思的铜像。（视频截图） </div><p>
   
@@ -698,7 +698,7 @@
 <hr>
 <h1 align="center">民国“山西王”当令中共贪官无地自容</b></h1>
 
-<div align="center"><IMG SRC="img-2/ee00f31593894ca83f564199d7e86498-600x400.jpg" width=640></div>
+<div align="center"><IMG SRC="img/ee00f31593894ca83f564199d7e86498-600x400.jpg" width=640></div>
 <div align="center">山西省前忻州市委书记董洪运贪腐过亿。（大纪元合成图）</div>
 <p>
   
@@ -740,7 +740,7 @@
 <h1 align="center">重庆医大原校长落马涉薄案核心内幕</b></h1>
 
 <div align="center">
-<IMG SRC="img-2/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640>
+<IMG SRC="img/Bo-Xilai-GettyImages-181507433-600x400.jpg" width=640>
 </div>
 
 <div align="center">薄熙来案的核心内幕是政变密谋和活摘器官罪恶。 (Photo by Feng Li/Getty Images)</div>
@@ -777,7 +777,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img-2/180422132924100083-600x400.jpg" width=640></td>
+<td align="center"><IMG SRC="img/180422132924100083-600x400.jpg" width=640></td>
 </tr>
 <tr>
 <td align="center">中共毁人不倦。图为台湾法轮大法学会4月22日举办全球声援三亿人退出中共党、团、队暨纪念“4.25”中国法轮功学员和平上访19周年活动。（林宏文／大纪元）</td>
