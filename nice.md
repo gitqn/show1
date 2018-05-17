@@ -1,6 +1,6 @@
 <IMG SRC="img/lian-y3-0515.jpg" width=880><br>
 
-<h2><a href="https://github.com/3fmd/true/blob/master/01.md>"看更多．．．</a></b></h2>
+<h2><a href="https://github.com/3fmd/true/blob/master/01.md"><>看更多．．．</a></b></h2>
 
 <hr>
 <h1 align="center">解体中共 重塑中华民族辉煌</b></h1>
