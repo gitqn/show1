@@ -1,8 +1,29 @@
 <IMG SRC="img-2/0521.jpg" width=880><br>
-
+<a name=top>
 <h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
 
+<a name=19>解体中共 重塑中华民族辉煌
+<a name=18>给中国公检法人员的一封信
+<a name=17>修大法让“女强人”成了好婆婆
+<a name=16>长期追求贸易顺差 中共会真的开放？
+<a name=15>退党团队是毎个人的明智选择
+<a name=14>调笑令‧血腥的旗帜
+<a name=13>今天打马克思牌就是与地狱接轨
+<a name=12>资源用完，就是崩溃！退党，就是自救救国！
+<a name=11>中共监狱酷刑虐待
+<a name=10>“褒扬”与“迫害”的对比
+<a name=9>世界绕川普转 川普围什么转
+<a name=8>中共送的马克思雕像被焚烧意味着什么？
+<a name=7>母亲节话孙蔼侠老人的悲惨遭遇
+<a name=6>睽违一甲子的变天 马来西亚民主的初尝试
+<a name=5>当今有哪个国家法律中定义“正教”？
+<a name=4>5‧13世界法轮大法日，中国人的骄傲
+<a name=3>民国“山西王”当令中共贪官无地自容
+<a name=2>重庆医大原校长落马涉薄案核心内幕
+<a name=1>毁人不倦的“党妈妈”
+
 <hr>
+<a href=#19>
 <h1 align="center">解体中共 重塑中华民族辉煌</b></h1>
 
 <div align=center><img src="img/7c6eab3b8d1dabee49b4ae18b00eada9-600x400.jpg" width=640></img></div>
@@ -123,7 +144,10 @@
 
 责任编辑：宗敏清
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#18>
 <h1 align="center">给中国公检法人员的一封信</b></h1>
 
 文:李若麟
@@ -156,7 +180,10 @@
 
 责任编辑：朱颖
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#17>
 <h1 align="center">修大法让“女强人”成了好婆婆</b></h1>
 
 <div align=center><img src="img/68936c9253b1d4c8b8222ceb76e30b6d.jpg" width=640></img></div>
@@ -211,7 +238,10 @@
 
 责任编辑：南风
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#16>
 <h1 align="center">长期追求贸易顺差 中共会真的开放？</b></h1>
 
 文:川人
@@ -234,7 +264,10 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#15>
 <h1 align="center">退党团队是毎个人的明智选择</b></h1>
 
 文:真言
@@ -251,7 +284,10 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#14>
 <h1 align="center">调笑令‧血腥的旗帜</b></h1>
 
 文:云鹤天
@@ -269,10 +305,13 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#13>
 <h1 align="center">今天打马克思牌就是与地狱接轨</b></h1>
 
-海网
+文:海网
 
 【大纪元2018年05月15日讯】
 
@@ -337,10 +376,13 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#12>
 <h1 align="center">资源用完，就是崩溃！退党，就是自救救国！</b></h1>
 
-观心
+文:观心
 
 土地是国家的最大资源，任何古今中外的任何社会都一样！
 
@@ -372,7 +414,10 @@
 
 责任编辑：高义
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#11>
 <h1 align="center">中共监狱酷刑虐待</b></h1>
 
 文:张林
@@ -409,7 +454,10 @@
 
 责任编辑：朱颖
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#10>
 <h1 align="center">“褒扬”与“迫害”的对比</b></h1>
 <div align="center"><img src="img/1804220948282384-600x400.jpg" width=640></div>
 
@@ -475,7 +523,10 @@
 
 责任编辑：莆山
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#9>
 <h1 align="center">世界绕川普转 川普围什么转</b></h1>
 <div align="center"><img src="img/000_1404VF-600x400.jpg" width=640></div>
 
@@ -507,7 +558,10 @@
 
 责任编辑：刘菁
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#8>
 <h1 align="center">中共送的马克思雕像被焚烧意味着什么？</b></h1>
 
 <div align="center"><img src="img/p8839942a342665171-ss-600x400.jpg" width=640></div>
@@ -548,10 +602,13 @@
 
 责任编辑：南风
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#7>
 <h1 align="center">母亲节话孙蔼侠老人的悲惨遭遇</b></h1>
 
-石铭
+文:石铭
 
 【大纪元2018年05月15日讯】据明慧网二零一八年五月九日消息：江苏省苏州市八十岁的法轮功学员孙蔼侠老人，被非法判刑一年半，孙蔼侠老人现已被劫持到南通女子监狱。
 
@@ -591,7 +648,10 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#6>
 <h1 align="center">睽违一甲子的变天 马来西亚民主的初尝试</b></h1>
 
 文:胡逸山
@@ -641,10 +701,13 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#5>
 <h1 align="center">当今有哪个国家法律中定义“正教”？</b></h1>
 
-如初
+文:如初
 
 【大纪元2018年05月15日讯】当今世界任何国家，无论是民主的还是独裁的，无论是文明社会，还是流氓政权，没有一个国家的法律中有“正教”或“正确的信仰”这样的词汇出现，当然更不会有对“正教”的法律定义。为什么？
 
@@ -670,7 +733,10 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#4>
 <h1 align="center">5‧13世界法轮大法日，中国人的骄傲</b></h1>
 
 文:川人
@@ -695,7 +761,10 @@
 
 责任编辑：任慧夫
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#3>
 <h1 align="center">民国“山西王”当令中共贪官无地自容</b></h1>
 
 <div align="center"><IMG SRC="img/ee00f31593894ca83f564199d7e86498-600x400.jpg" width=640></div>
@@ -736,7 +805,10 @@
 
 责任编辑：高义
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#2>
 <h1 align="center">重庆医大原校长落马涉薄案核心内幕</b></h1>
 
 <div align="center">
@@ -772,7 +844,10 @@
 
 责任编辑：高义
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <hr>
+<a href=#1>
 <h1 align="center">毁人不倦的“党妈妈”</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -825,3 +900,5 @@
 好在人是会学习的动物，中国的新一代年轻人中，已经有越来越多的人看清了共产党毁人不倦的真面目，自发地与之隔离，最近出现的“佛系青年”便是例证。“党妈妈”还在故作镇定强颜欢笑，却也知道脸上厚厚的脂粉正在一层一层地掉，心里苦的很：它这“恩师”、“慈母”和“救星”形象，说不定哪天就演不下去了。
 
 责任编辑：高义
+
+<a href=#top><h6 align="right">回上方</h6></a>
