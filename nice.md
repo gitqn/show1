@@ -27,7 +27,7 @@
 <hr>
 <a name=21>
 <h1 align="center"><b>中共解体时爱国游子陈嘉远将魂归故里</b></h1>
-<div align="center"><img src="GCC/img/alexander_hamrle_chiayuan_chen_frankfurt1-640x480-1-600x400.jpg" width=640></div>
+<div align="center"><img src="img/alexander_hamrle_chiayuan_chen_frankfurt1-640x480-1-600x400.jpg" width=640></div>
 <div align="center">2008年2月17日，陈嘉远教授法兰克福神韵演出的中场休息时接受新唐人电视台德文记者采访，他赞叹：“这才是真正的中国传统文化！” （Alexander Hamrle/NTD）</div><p>
 
 作者：陈渝
