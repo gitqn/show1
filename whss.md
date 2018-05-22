@@ -6,7 +6,7 @@
 <hr>
 <a name=2>
 <h1 align="center"><b>魔教哲学批判——自序</b></h1>
-<div align="center"><img src="img/1309060122451657-600x400.jpg width=640></div>
+<div align="center"><img src="img/1309060122451657-600x400.jpg" width=640></div>
 <div align="center">中共在篡政后任意杀戮中华儿女，杀戮抗日英雄，掠夺国民财产，毁灭华夏文明，使十几亿人失去人身自由而做了现代奴隶。（Getty Images）</div><p>
   
 作者：惠虎宇  
