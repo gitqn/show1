@@ -3,7 +3,7 @@
 <h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
 <h2><a href="https://github.com/goodabc/GCC/blob/master/jysl.md"><b>九评编辑部：魔鬼在统治着我们的世界</a></b></h2>
 <h2><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md"><b>《共产主义的终极目的》相关评论</a></b></h2>  
-<h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术</a></b></h2> 
+<h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术相关评论</a></b></h2> 
   
 <a href=#21>中共解体时爱国游子陈嘉远将魂归故里<br>
 <a href=#20>结束屠杀 惩办迫害元凶江泽民！<br>
