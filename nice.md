@@ -131,7 +131,7 @@
 <hr>
 <a name=39>
 <h1 align="center"><b>中共组团驳斥“活摘”为哪般？</b></h1>
-<div align="center"><img src="img/-199.jpg" width=640></div>
+<div align="center"><img src="img/1-199.jpg" width=640></div>
 <div align="center">各国国旗（联合国图片）</div><p>
 
 作者：颜丹
