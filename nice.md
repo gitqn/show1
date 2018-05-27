@@ -49,7 +49,7 @@
 <a href=#1>毁人不倦的“党妈妈”<br>
 
 <hr>
-<a name=40>
+<a name=41>
 <h1 align="center"><b>川普总统面对什么关键问题</b></h1>
 <div align="center"><img src="img/01-GettyImages-961087066-3-600x400.jpg" width=640></div>
 <div align="center">在川普总统面对的难题背后，诸如应对朝鲜核武威胁等等，共产邪恶势力才是问题的根源。 ( Mark Wilson/Getty Images)</div><p>
@@ -95,8 +95,8 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr>
-<a name=41>
-<h1 align="center"><b>中共组团驳斥“活摘”为哪般？</b></h1>
+<a name=40>
+<h1 align="center"><b>川金会，美朝关系与中朝共党命运</b></h1>
 <div align="center"><img src="img/01-GettyImages-958922136-2-600x400.jpg" width=640></div>
 <div align="center">川普总统周四宣布取消川金会。几个小时之前，他曾暗示朝鲜可能被允许阶段性弃核，以换取放松制裁，但是要求“迅速”。( MANDEL NGAN/AFP/Getty Image)</div><p>
 
@@ -130,7 +130,7 @@
 
 <hr>
 <a name=39>
-<h1 align="center"><b>川金会，美朝关系与中朝共党命运</b></h1>
+<h1 align="center"><b>中共组团驳斥“活摘”为哪般？</b></h1>
 <div align="center"><img src="img/-199.jpg" width=640></div>
 <div align="center">各国国旗（联合国图片）</div><p>
 
