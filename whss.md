@@ -1,3 +1,5 @@
+<a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
+
 <a name=top>
 <a href=#1>一位年轻思想家的理性批判<br>
 <a href=#2>魔教哲学批判——自序<br>
