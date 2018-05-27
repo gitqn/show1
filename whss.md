@@ -9,7 +9,7 @@
 <a name=31>
 <h1 align="center"><b>中共意识形态之理性批判（2）</b></h1>
 <h3 align="center"><b>共产革命逆历史潮流</b></h3>  
-<div align="center"><img src="img/content_540-42-01-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img/content_540-42-01-600x400.jpg" width=640></div>
 <div align="center">共产党以煽动流氓无产者起义的暴力革命手段扼杀了东亚第一个民主共和国，在中国建立了历史上最黑暗最残暴的共产主义专制政权，建政后屠杀中华儿女近8千万，全面毁灭了传承五千年的优秀民族文化。（Getty Images）</div><p>
 
 作者：惠虎宇
