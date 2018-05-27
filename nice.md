@@ -43,7 +43,7 @@
 <a href=#1>毁人不倦的“党妈妈”<br>
 
 <hr>
-<a name=34>
+<a name=35>
 <h1 align="center"><b>新疆，当今世界最大的人造监狱</b></h1>
 <div align="center"><img src="img/5ae52411437b927b9f955b9254d0268c-600x341.jpg" width=640></div>
 <div align="center">据流亡海外的维吾尔人和一些学者说，新疆可能高达近百万名维吾尔人被关押在“再教育营”中。（视频截图）</div><p>
