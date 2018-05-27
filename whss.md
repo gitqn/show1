@@ -1,3 +1,5 @@
+<a href=https://git.io/goal><img src="img/whss.jpg">
+
 <a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
 
 <a name=top>
