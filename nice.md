@@ -5,7 +5,7 @@
 <h2><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md"><b>《共产主义的终极目的》 相关评论</a></b></h2>  
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术 相关评论</a></b></h2> 
 
-時政評論目錄 :
+時政評論目錄 :<br>
 <a href=#32>中国大学里藏着多少不为人知的告密者？<br>
 <a href=#31>屡被举报的马克思主义理论家为何不倒<br>
 <a href=#30>从马来西亚反腐看中共反腐<br>
@@ -41,7 +41,7 @@
 
 
 <hr>
-<a name=31>
+<a name=32>
 <h1 align="center"><b>中国大学里藏着多少不为人知的告密者？</b></h1>
 <div align="center"><img src="img/photo_2018-05-21_10-24-10-480x400-2.jpg" width=640></div>
 <div align="center">中南财经政法大学处分女副教授翟桔红因言，被停职、记过、开除党籍，还会被提报注销教师资格。（维权网）</div><p>
