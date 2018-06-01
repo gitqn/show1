@@ -6,7 +6,7 @@
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术 相关评论</a></b></h2> 
 
 時政評論目錄 :<p>
-<a href=#51>内外有别，核心利益双重标准？<br>
+<a href=#52>内外有别，核心利益双重标准？<br>
 <a href=#51>广东反腐又拿个“第一”谁罪不可没<br>
 <a href=#50>中国妇女为何向默克尔求助？<br>
 <a href=#49>鹧鸪天‧红权<br>
@@ -60,7 +60,7 @@
 <a href=#1>毁人不倦的“党妈妈”<br>
 
 <hr>
-<a name=31>
+<a name=52>
 <h1 align="center"><b>内外有别，核心利益双重标准？</b></h1>
 
 作者：川人
