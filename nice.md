@@ -58,7 +58,7 @@
 <a name=47>
 <h1 align="center"><b>赤龙的钱囊吞噬著整个世界（上）</b></h1>
 <h3 align="center"><b>—在加拿大多伦多大学中国未来研讨会的发言</b></h3>
-<div align="center"><img src="img/e927d59b5cc77afb60e87548df2623c6-e1527429372223.jpg.jpg" width=640></div>
+<div align="center"><img src="img/e927d59b5cc77afb60e87548df2623c6-e1527429372223.jpg" width=640></div>
 <div align="center">美国之音【焦点对话】探讨中美贸易战。图为节目视频截图。（美国之音）</div><p>
 
 作者：谢田
