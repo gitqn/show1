@@ -6,6 +6,7 @@
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术 相关评论</a></b></h2> 
 
 評論目錄 :<p>
+<a href=#60>明真相<br>
 <a href=#59>解毛泽东思想<br>
 <a href=#58>不应忘却——写在美国国殇日<br>
 <a href=#57>被医院弃疗的残疾儿何以重获新生<br>
@@ -65,6 +66,27 @@
 <a href=#3>民国“山西王”当令中共贪官无地自容<br>
 <a href=#2>重庆医大原校长落马涉薄案核心内幕<br>
 <a href=#1>毁人不倦的“党妈妈”<br>
+
+<hr>
+<a name=60>
+<h1 align="center"><b>明真相</b></h1>
+<div align="center"><img src="img/XXX.jpg" width=640></div>
+<div align="center">XXX</div><p>
+
+作者：归航
+
+【大纪元2018年05月30日讯】<br>
+你也瞅，他也瞅，<br>
+真相展板墙上有，<br>
+观罢解迷忧。
+
+东家走，西家走，<br>
+画册九评送到手，<br>
+三退离虎口！
+
+责任编辑：任慧夫
+
+<a href=#top><h6 align="right">回上方</h6></a>
 
 <hr>
 <a name=59>
