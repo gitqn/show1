@@ -5,7 +5,7 @@
 <h2><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md"><b>《共产主义的终极目的》 相关评论</a></b></h2>  
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术 相关评论</a></b></h2> 
 
-評論目錄 :<p>
+【大纪元2018年05月评论目录】 :<p>
 <a href=#69>历史不会忘记<br>
 <a href=#68>法轮大法使我在浊世中保持善良<br>
 <a href=#67>安徽警方发布的“黑锅”为何成了网红？<br>
