@@ -2,7 +2,8 @@
 <h1 align="center"><b>评《共产党宣言》</b></h1>
 <div align="center"><img src="img/757f29eb5fde8963fcd4ac810d70e309-600x400.jpg" width=640></div>
 <div align="center">自有人类以来，从未有过任何一篇文字，像《共产党宣言》一样，号召用“暴力”来毁灭现存世界的一切。(Chung Sung-Jun/Getty Images)</div><p>
-
+<a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
+ 
 <a href=#2>共产主义毁灭人类的宣言书（中）<br>
 <a href=#1>共产主义毁灭人类的宣言书（上）<br>
  
