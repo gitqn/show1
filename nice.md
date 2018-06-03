@@ -6,7 +6,7 @@
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>文化学术 相关评论</a></b></h2> 
 
 評論目錄 :<p>
-<a href=#66>安徽警方发布的“黑锅”为何成了网红？<br>
+<a href=#67>安徽警方发布的“黑锅”为何成了网红？<br>
 <a href=#66>川普与邪恶对手的谈判策略<br>
 <a href=#65>川普开始新行动 美国务卿释重磅信号<br>
 <a href=#64>吉林官员落马 主政地曾有事件震惊中外<br>
