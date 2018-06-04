@@ -21,7 +21,7 @@
 <hr>
 <a name=9>
 <h1 align="center"><b>.中共逼人流亡 自由为何在异乡？</b></h1>
-<div align="center"><img src="img/4a144fa3fbea764cfe6e08e4fd1a8928-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img/4a144fa3fbea764cfe6e08e4fd1a8928-600x400.jpg" width=640></div>
 <div align="center">为了自由，背井离乡。这一条艰险的路，毕竟点燃了希望。流亡的故事，催人泪下。（公有领域）</div><p>
 
 作者：高天韵
