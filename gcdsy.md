@@ -5,7 +5,7 @@
  
 <a href=#1>共产主义毁灭人类的宣言书（上）<br> 
 <a href=#2>共产主义毁灭人类的宣言书（中）<br>
-<a href=#2>共产主义毁灭人类的宣言书（下）<br>
+<a href=#3>共产主义毁灭人类的宣言书（下）<br>
 
 <a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
 
@@ -189,8 +189,8 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr>
-<a name=>
-<h1 align="center"><b>4AmGKos5</b></h1>
+<a name=3>
+<h1 align="center"><b>共产主义毁灭人类的宣言书（下）</b></h1>
 
 作者：凌晓辉
 
