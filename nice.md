@@ -27,7 +27,7 @@
 <a href=#1>1.失控的假新闻 美国媒体为何围攻川普（下）<br>
 
 <hr>
-<a name=31>
+<a name=16>
 <h1 align="center"><b>六四时北京市民知道天安门有摄像头</b></h1>
 <div align="center"><img src="img/7dce75fc192b04917a9008da7d36a4c6.jpg" width=640></div>
 <div align="center">北京街头随处可见的监控摄像头。（网络图片）</div><p>
