@@ -1,6 +1,6 @@
 <a name=top>
 
-<div align="center"><img src="img/jgrc.png" ></div>
+<div align="center"><img src="img/jgrc.png"></div>
 
 <a href=#2>缴税上亿 子却无权入学 北京CEO抱怨被称汉奸 2018-06-01<br>
 <a href=#1>麦塔斯揭中共经营器官黑市及活摘暴行 2018-06-01<br> 
