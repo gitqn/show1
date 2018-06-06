@@ -47,7 +47,7 @@
 
 <hr>
 <a name=39>
-<h1 align="center"><b>XXXX</b></h1>
+<h1 align="center"><b>“六四”29周年当天 大陆多人失联或被抓</b></h1>
 <div align="center"><img src="img/1534fd14a5292c1b_ttl7dayFWy_20180604-64-Poon-600x400.jpg" width=640></div>
 <div align="center">“六四”29周年当天，大陆多名维权人士、异议人士、教会成员等被骚扰或被带走。图为“六四”纪念日当天，在雨天的情况下仍有11万5000名香港市民参加悼念六四受害者的活动。（李逸／大纪元）</div><p>
 
