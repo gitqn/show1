@@ -19,7 +19,7 @@
 <a name=9>
 <h1 align="center"><b>才见德国总理 余文生妻随后被限制人身自由</b></h1>
 <div align="center"><img src="img/DcPEOtsW4AAGOaN-600x400.jpg" width=640></div>
-<div align="center">XXX</div><p>
+<div align="center">昨天，北京维权律师余文生的妻子许艳在社交媒体上披露，自己外出时，遭到所在地派出所和社区人员跟踪，且被限制人身自由。（许艳推特）</div><p>
 
 【大纪元2018年06月01日讯】（大纪元记者萧律生报导）昨天，北京维权律师余文生的妻子许艳在社交媒体上披露，自己外出时，遭到所在地派出所和社区人员跟踪，且被限制人身自由。
 
