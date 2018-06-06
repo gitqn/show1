@@ -2,7 +2,8 @@
 
 <div align="center"><img src="img/jgrc.png" width=890></div>
 <p>
- 
+
+<a href=#31>【新闻看点】全球悼六四29年 中共如何遗忘？ 2018-06-05<br>
 <a href=#31>采取极端控制手段 中共大力打击维吾尔人 2018-06-05<br>
 <a href=#30>主管迫害法轮功 公安局长患多种癌病死亡 2018-06-05<br>
 <a href=#29>组图：六四事件 中共坦克横冲天安门广场 2018-06-04<br>
@@ -39,9 +40,7 @@
 
 <hr>
 <a name=32>
-<h1 align="center"><b>【新闻看点】全球悼六四29年 中共如何遗忘？</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">（网络图片）</div><p>
+<h1 align="center"><b><a href="https://github.com/no1show/show1/blob/master/download/64-29.mp4?raw=true">【新闻看点】全球悼六四29年 中共如何遗忘？</a></b></h1>
 
 【大纪元2018年06月04日讯】大家好，欢迎大家订阅关注新闻看点，我是李沐阳。
 
