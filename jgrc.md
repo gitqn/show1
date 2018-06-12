@@ -73,7 +73,7 @@
  
 陈英曾是佳木斯市树人中学学生，修炼法轮功后，按“真、善、忍”做人，诚实认真，助人为乐，是一个学习成绩及品德优秀的阳光女孩。她喜欢各种文体活动，尤其爱好书法，曾多次获书法荣誉证书。校里校外，人们都很喜欢她。
 
-<div align="center"><img src="img/2018-6-2-200937-0-ss.jpg" width=640></div>
+<div align="center"><img src="img/2018-6-2-200937-0-ss.jpg" width=160></div>
 <div align="center">陈英（明慧网）</div><p>
 
 1996年，中共喉舌《光明日报》刊文诬蔑法轮功，14岁的陈英，立即给《光明日报》写信，谈自己修炼法轮法轮功后受益的体会；1999年7月，《科技之光》再次刊出诬蔑法轮功的文章，陈英和其他法轮功学员联名给《科技之光》发了五封电邮。
@@ -156,10 +156,10 @@
 
 初丛锐芳年19岁，系吉林省舒兰天德徐家村一社法轮功学员。提起她，家乡认识她的人无不说好。
 
-<div align="center"><img src="img/2018-6-2-200937-1-ss.jpg" width=640></div>
+<div align="center"><img src="img/2018-6-2-200937-1-ss.jpg" width=160></div>
 <div align="center">初丛锐（明慧网）</div><p>
 
-<div align="center"><img src="img/zhaojing17sep01_1_big-450x621.jpg" width=640></div>
+<div align="center"><img src="img/zhaojing17sep01_1_big-450x621.jpg" width=160></div>
 <div align="center">初丛锐（明慧网）</div><p>
  
 2000年8月，初丛锐独自进京，为法轮功鸣冤，被强行抓回当地，非法关押在天德乡，她得以走脱，之后，在舒兰市一家饭店打工。她的举止祥和、美好，一人干两人的活，老板对她的印象极好，说：“你在这儿干吧，他们再抓，我保护你。”
@@ -186,7 +186,7 @@
 
 弥留之际，被非法关押在劳教所的父亲不准回家探望女儿。次年2月，张琤含泪离开人世，年仅14岁。
 
-<div align="center"><img src="img/2018-6-2-200937-2.jpg" width=640></div>
+<div align="center"><img src="img/2018-6-2-200937-2.jpg" width=160></div>
 <div align="center">巢湖市初中生张琤。（明慧网）</div><p>
 
 <b>遭刑讯威逼 含冤离世</b>
@@ -197,7 +197,7 @@
 
 多次遭警察的骚扰、审讯、威逼，孩子的身心受到极大伤害，于2003年月12日含冤离世，年仅14岁。
 
-<div align="center"><img src="img/2013-11-5-minghui-children4-02-ss.jpg" width=640></div>
+<div align="center"><img src="img/2013-11-5-minghui-children4-02-ss.jpg" width=160></div>
 <div align="center">王文兰（左图）。（明慧网）</div><p>
 
 <b>摧残下旧病复发</b>
