@@ -251,8 +251,6 @@ http://www.epochtimes. com/gb/16/4/7/n7528083.htm
 <hr>
 <a name=62>
 <h1 align="center"><b>送俄国土再授勋章 中国人情何以堪？</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 作者：冉沙洲
 
