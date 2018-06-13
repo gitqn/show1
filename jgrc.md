@@ -96,7 +96,7 @@
 
 <b>医生：大陆移植不透明 成暴利产业</b>
 
-<div align="center"><img src="img/20180612-hsichiao-hk-03.jpg" width=640></div>
+<div align="center"><img src="img/20180612-hsichiao-hk-03.jpg" width=160></div>
 <div align="center">黄士维医师</div><p>
 
 
@@ -116,10 +116,10 @@
 
 <b>迫害延伸香港 政界强调挺身而出</b>
 
-<div align="center"><img src="img/20180612-hsichiao-hk-04.jpg" width=640></div>
+<div align="center"><img src="img/20180612-hsichiao-hk-04.jpg" width=160></div>
 <div align="center">何俊仁</div><p>
 
-<div align="center"><img src="img/20180612-hsichiao-hk-05.jpg" width=640></div>
+<div align="center"><img src="img/20180612-hsichiao-hk-05.jpg" width=160></div>
 <div align="center">梁国雄</div><p>
 
 多位本地政界人士则谈到中共对法轮功的迫害延伸至香港。香港民主党前主席、支联会主席何俊仁指，国际人权组织公认法轮功是目前在中国大陆被迫害最严重的信仰团体，他忆述2001年时任特首董建华曾在立法会内发表诬蔑法轮功的言论，他即场驳斥说：“特首你是不可以这样攻击一个群体，你没有根据，你乱说，你是在用立法会的特权来保护你，如果你在外面讲一定会被人告，我都会代表告你。”
