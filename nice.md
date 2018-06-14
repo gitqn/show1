@@ -90,7 +90,7 @@
 <hr>
 <a name=76>
 <h1 align="center"><b>陕西官二代落马 官一代曾靠江泽民包庇</b></h1>
-<div align="center"><img src="img/1210291432372519-600x400.jpg.jpg" width=640></div>
+<div align="center"><img src="img/1210291432372519-600x400.jpg" width=640></div>
 <div align="center">被指祸乱榆林长达9年的胡志强，终于落马，其父胡富国（前山西省委书记）自然受打击，但今非昔比，已经不能再靠江泽民包庇腐败。（Feng Li/Getty Images）</div><p>
 
 作者：陈思敏
