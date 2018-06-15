@@ -107,10 +107,10 @@
 
 他说，刑事案件法院会受理，但是刑事拘留你告到法院是不受理的，他们这种行为是在操作宪法法律，规避法律对他们的制裁。所以我希望国际社会包括美国、欧盟、联合国等人权组织，应该对这样无法无天的行为加以谴责，并禁止政法系统官员、公安部门等人权恶棍和其亲属进入这些国家。
 
-<div align="center"><img src="img/S__4948026-450x514.jpg" width=640></div>
+<div align="center"><img src="img/S__4948026-450x514.jpg" width=450></div>
 <div align="center">上海访民在青岛高铁北站被截回。（受访者提供）</div><p>
 
-<div align="center"><img src="img/S__4948025-450x600.jpg" width=640></div>
+<div align="center"><img src="img/S__4948025-450x600.jpg" width=450></div>
 <div align="center">上海访民在青岛被截回，在回上海的大巴上。（受访者提供）</div><p>
 
 <b>美丽的长兴岛成人间地狱</b>
@@ -127,10 +127,10 @@
 
 访民表示，美丽的长兴岛被这些官匪勾结，联手搞成了人间地狱，这就是中国特色的法制社会。
 
-<div align="center"><img src="img/S__4964373-450x338.jpg" width=640></div>
+<div align="center"><img src="img/S__4964373-450x338.jpg" width=450></div>
 <div align="center">长兴岛的黑监狱。（受访者提供）</div><p>
 
-<div align="center"><img src="img/S__4964379-450x600.jpg" width=640></div>
+<div align="center"><img src="img/S__4964379-450x600.jpg" width=450></div>
 <div align="center">长兴岛的黑监狱。（受访者提供）</div><p>
 
 <b>天谴人祸 冰雹淹没青岛</b>
