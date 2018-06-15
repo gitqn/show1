@@ -132,8 +132,6 @@
 <hr>
 <a name=79>
 <h1 align="center"><b>中共奢靡程度冠绝古今中外</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 作者：张林
 
