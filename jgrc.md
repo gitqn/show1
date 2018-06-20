@@ -100,7 +100,7 @@
 
 【大纪元2018年06月17日讯】“小小白花 蓝天之下 因何而歌 不见爸爸 风呀云呀 我信爸爸 身在天涯 想着我呀”——这是一位狱中法轮功学员的诗作《女儿歌》，天津女孩滑雪觉得，这首诗正是她自己内心的真实写照。
 
-<div align="center"><img src="img/Screen-Shot-2018-06-15-at-8.43.37-PM-476x400.png" width=640></div>
+<div align="center"><img src="img/Screen-Shot-2018-06-15-at-8.43.37-PM-476x400.png" width=480></div>
 <div align="center">（明慧网）</div><p>
 
 2017年7月11日，天津市的杨光威接到通知：父亲命危。她赶到武清中医院，见到半年未见的父亲：身体僵硬，脚都凉了…… 医院的“抢救”只是在做样子。
@@ -135,7 +135,7 @@
 
 <b>杨玉永被天津武清区看守所迫害致死</b>
 
-<div align="center"><img src="img/2018-4-7-yang-yu-yong_02.jpg" width=640></div>
+<div align="center"><img src="img/2018-4-7-yang-yu-yong_02.jpg" width=450></div>
 <div align="center">杨玉永女儿杨光威拿着父亲的遗像。（明慧网）</div><p>
 
 2016年12月7日，杨光威的父亲杨玉永、母亲孟宪珍被绑架，非法关押在天津武清区看守所。2017年7月11日，杨玉永在看守所被酷刑迫害致死。孟宪珍被非法关押至今。杨光威的父母都是法轮功学员。
@@ -154,7 +154,7 @@
 
 滑连有，原天津市显像管厂的会计师、法轮功学员，为人热情、开朗、善良、乐于助人；他喜欢打球，也擅长工艺毛衣的设计，曾经营服装店。
 
-<div align="center"><img src="img/2013-7-28-minghui-tianjin-hualianyou.jpg" width=640></div>
+<div align="center"><img src="img/2013-7-28-minghui-tianjin-hualianyou.jpg" width=250></div>
 <div align="center">滑连有（明慧网）</div><p>
 
 滑连有1997年修炼法轮功。修炼前，他患严重腰间盘突出，瘫痪在床；修炼后，奇迹康复。
