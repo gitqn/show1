@@ -296,8 +296,6 @@
 <hr>
 <a name=92>
 <h1 align="center"><b>陆退伍老兵被视为“不稳定人员”禁入天安门</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 【大纪元2018年06月20日讯】（大纪元记者李熙采访报导）近日，有一群退伍老兵到北京天安门观光，被当作是犯过罪的“不稳定人员”，不让进入天安门。
 
