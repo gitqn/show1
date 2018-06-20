@@ -186,7 +186,7 @@
 
 孙敏是鞍山市一名德才兼备的优秀中学教师，拥有哲学学士学位及省级的科研项目、国家级科研论文。从1991年到2000年，她的科研项目、论文、教案、课件等获得一等优秀成果奖、一等奖等十多项殊荣。
 
-<div align="center"><img src="img/2018-5-21-203524-25" width=150></div>
+<div align="center"><img src="img/2018-5-21-203524-25.jpg" width=150></div>
 <div align="center">孙敏生前照片。（明慧网）</div><p>
 
 <div align="center"><img src="img/2017-3-2-205317-1-ss.jpg" width=370></div>
