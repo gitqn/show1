@@ -123,53 +123,53 @@
 
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
 
-<div align="center"><img src="D010584-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010584-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="1806201510271973-600x400.jpg" width=600></div>
+<div align="center"><img src="img/1806201510271973-600x400.jpg" width=600></div>
 
 <div align="center"><img src="D011170-600x400.jpg" width=600></div><div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010756-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010756-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010773-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010773-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010835-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010835-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010761-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010761-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010886-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010886-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
 
-<div align="center"><img src="D010737-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010737-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010740-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010740-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010826-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010826-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010783-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010783-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010851-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010851-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010896-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D010896-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D011166-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D011166-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D011077-600x400.jpg" width=600></div>
+<div align="center"><img src="img/D011077-600x400.jpg" width=600></div>
 <div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>
  
-<div align="center"><img src="D010921-600x400.jpg" width=600></di<div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>v>
+<div align="center"><img src="img/D010921-600x400.jpg" width=600></di<div align="center">6月20日，全球部分法轮功学员聚集在美国首府华盛顿DC，举行反迫害集会游行，各界正义人士将到场声援，制止中共迫害，呼吁人们认清共产主义对人类的危害。（戴兵/大纪元）</div><p>v>
 
 责任编辑：杨亦慧
 
