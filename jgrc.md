@@ -478,7 +478,7 @@ Carlos Iglesias说，“我会将我要做的事情持续下去，我要告诉�
 
 <b>敞开心扉 让人们获得了解法轮大法的机缘</b>
 
-<div align="center"><img src="img/1806211719301973-450x300" width=640></div>
+<div align="center"><img src="img/1806211719351973-450x300.jpg" width=640></div>
 <div align="center">法轮功学员凯瑟琳·考贝思（Katherine Combes）现场发言。（戴兵／大纪元）</div><p>
  
 凯瑟琳·考贝思（Katherine Combes）来自美国地广人稀的蒙大拿州，她是当地唯一的一名法轮功学员。
