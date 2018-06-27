@@ -285,7 +285,7 @@
 
 常永福生前被关入哈尔滨市长林子劳教所。长林子劳教所迫害他后，为了推卸责任，将其送回木兰县“610”办公室。“610”将其送入精神病院。精神病院对其注入了不明药物，待药物发作后让家属接回家中。常永福含冤而死。
 
-<div align="center"><img src="img/2007-2-11-changyongfu.jpg" width=640></div>
+<div align="center"><img src="img/2007-2-11-changyongfu.jpg" width=280></div>
 <div align="center">黑龙江法轮功学员常永福遗体脸部严重变形。（明慧网）</div><p>
 
 <b>强制堕胎</b>
@@ -313,7 +313,7 @@
 
 法医鉴定，盖春林是被开水烫死的。
 
-<div align="center"><img src="img/2009-2-20-gaichunlin-01.jpg" width=640></div>
+<div align="center"><img src="img/2009-2-20-gaichunlin-01.jpg" width=450></div>
 <div align="center">盖春林（明慧网）</div><p>
  
 <b>熬鹰</b>
