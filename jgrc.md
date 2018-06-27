@@ -2,6 +2,15 @@
 
 <a href=https://github.com/no1show/show1/blob/master/nice.md><div align="center"><img src="img/jgrc.png" width=890></a></div>
 <p>
+ <IMG SRC="img-2/0625.jpg" width=880><br>
+<a name=top>
+<h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
+<h2><a href="https://github.com/goodabc/GCC/blob/master/jysl.md"><b>九评编辑部：魔鬼在统治着我们的世界</a></b></h2>
+<h2><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md"><b>《共产主义的终极目的》 相关评论</a></b></h2>  
+<h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>中共意识形态之理性批判</a></b></h2> 
+<h2><a href="https://github.com/no1show/show1/blob/master/gcdsy.md"><b>评《共产党宣言》</a></b></h2> 
+<h2><a href="https://github.com/no1show/show1/blob/master/nice.md"><b>【大纪元评论】</a></b></h2> 
+ 
 <a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
  
 <a href=#137>137. 王全璋生死未卜 妻儿老小与代理律师还被迫害   &nbsp;&nbsp;&nbsp;2018-06-26<br>
