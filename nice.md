@@ -35,7 +35,7 @@
 </b>
 
 <hr>
-<a name=31>
+<a name=19>
 <h1 align="center"><b>三退大潮二〇一八年综合报告（六）</b></h1>
 <h3 align="center"><b>全球退党服务中心</b></h3>
  <div align="center"><img src="img/1804072303381749-600x400.jpg" width=640></div>
