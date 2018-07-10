@@ -1,4 +1,4 @@
-<IMG SRC="img-2/0706.jpg" width=880><br>
+<IMG SRC="img-2/0710.jpg" width=880><br>
 <a name=top>
 <h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
 <h2><a href="https://github.com/goodabc/GCC/blob/master/jysl.md"><b>九评编辑部：魔鬼在统治着我们的世界</a></b></h2>
