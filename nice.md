@@ -41,8 +41,6 @@
 <a name=22>
 <h1 align="center"><b>良知唤醒时，魔鬼到末日——中共诬蔑失败</b></h1>
  <h3 align="center"><b>法轮功学员应邀登上国际论坛讲真相感言</b></h3>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 作者：郑纯清
 
