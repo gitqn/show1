@@ -49,7 +49,7 @@
 <hr>
 <a name=30>
 <h1 align="center"><b>中共高官们 小心自己被镭射枪点燃</b></h1>
-<div align="center"><img src="img/11-600x400.png" width=640></div>
+<div align="center"><img src="img/11-600x400.png" width=500></div>
 <div align="center">中共新研发的镭射步枪ZKZM-500（新唐人视频截图）</div><p>
 
 作者：九天剑
