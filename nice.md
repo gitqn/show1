@@ -1,4 +1,5 @@
 <IMG SRC="img-2/0714.jpg" width=880><br>
+<div align="center"><IMG SRC="img-2/logo-0714.png" width=880><br></div>
 <a name=top>
 <h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
 <h2><a href="https://github.com/goodabc/GCC/blob/master/jysl.md"><b>九评编辑部：魔鬼在统治着我们的世界</a></b></h2>
@@ -43,7 +44,7 @@
 <a href=#3>3. 德国战车倾覆 全怪中共送马克思回乡？</a><br>
 <a href=#2>2. 三退大潮二〇一八年综合报告（三）</a><br>
 <a href=#1>1. 魔鬼在统治着我们的世界(18)：教育篇(上)</a><br>
-<div align="center"><IMG SRC="img-2/logo-0714.png" width=880><br></div>
+
 </b>
 
 <hr>
