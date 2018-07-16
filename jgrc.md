@@ -16,7 +16,7 @@
 <a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
 
 
-<a href=#143>143. 余文生陷冤狱 妻子救夫遭中共迫害   &nbsp;&nbsp;&nbsp;2018-06-27<br>
+<a href=#144>144. 余文生陷冤狱 妻子救夫遭中共迫害   &nbsp;&nbsp;&nbsp;2018-06-27<br>
 <a href=#143>143. 从川普反制中共 学者谈台湾因应中共的策略   &nbsp;&nbsp;&nbsp;2018-06-27<br>
 <a href=#142>142. 谭嗣同殉难120周年 中共不悼反强拆谭氏家庙   &nbsp;&nbsp;&nbsp;2018-06-27<br>
 <a href=#141>141. 国际反酷刑日 看中共秘密使用的“酷刑”   &nbsp;&nbsp;&nbsp;2018-06-26<br>
