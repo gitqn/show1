@@ -1,4 +1,5 @@
-<IMG SRC="img-2/0718.jpg" width=880><br>
+<div align="center"><IMG SRC="img-2/logo-0721.jpg" width=640><br>
+<IMG SRC="img-2/0721.jpg" width=640></div><br>
  
 <a name=top>
 <h2><a href="https://github.com/3fmd/true/blob/master/01.md"><b>看更多．．．</a></b></h2>
