@@ -1,7 +1,8 @@
 <a name=top>
 
-<a href=https://github.com/no1show/show1/blob/master/nice.md><div align="center"><div align="center"><IMG SRC="true/img-2/logo-0721.jpg" width=640></a><br>
-<IMG SRC="true/img-2/0721.jpg" width=640></div><br>
+<div align="center"><IMG SRC="img-2/logo-0721.jpg" width=640></a><br>
+<IMG SRC="img-2/0721.jpg" width=640></div><br>
+ 
 <p>
 <IMG SRC="img-2/0718.jpg" width=880><br>
 
