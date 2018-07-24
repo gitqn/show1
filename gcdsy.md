@@ -11,6 +11,9 @@
 <a href=#4>共产主义毁灭人类的宣言书（下）<br>
 <a href=#5>《共产党宣言》是共产邪灵向人类的宣战书<br>
 <a href=#6>《共产党宣言》谎言逻辑之解读：共产必先共妻<br>
+<a href=#7>凌晓辉：毒害人类灵魂的共产主义理论（上）<br>
+<a href=#8>凌晓辉：毒害人类灵魂的共产主义理论（中）<br>
+<a href=#9>凌晓辉：毒害人类灵魂的共产主义理论（下）<br>
  
 <a href=https://github.com/no1show/show1/blob/master/nice.md><h6 align="right">回首頁</h6></a>
 
