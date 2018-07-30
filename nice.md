@@ -78,7 +78,6 @@
 <div align="center"><img src="img/GettyImages-1004148814-600x400.jpg" width=640></div>
 <div align="center">中国假疫苗事件，再次引发民众感叹中国社会道德无底线。(AFP/Getty Images)</div><p>
 
-作者：xxx
 
 【大纪元2018年07月24日讯】还有什么假不了？
 
