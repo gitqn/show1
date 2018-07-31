@@ -86,7 +86,7 @@
 </b>
 
 <hr>
-<a name=67>
+<a name=69>
 <h1 align="center"><b>程晓容：国内外两件大事 令中共邪恶现形</b></h1>
 <div align="center"><img src="img/1-238-600x400.jpg" width=640></div>
 <div align="center">近日，国内外发生了两件大事，聚焦中共的邪恶。（影片截图）</div><p>
