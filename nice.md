@@ -101,7 +101,7 @@
 </b>
 
 <hr>
-<a name=XX>
+<a name=83>
 <h1 align="center"><b>石铭：中共不除国无宁日</b></h1>
 <h3 align="center"><b>——“七·二零”期间中共继续做恶不停</b></h3>
 <div align="center"><img src="img/1804220948282384-1-600x400.jpg" width=640></div>
