@@ -102,8 +102,6 @@
 <hr>
 <a name=82>
 <h1 align="center"><b>川普民调不降反升 媒体炮轰为何失效（下）</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=640></div>
-<div align="center">XXX</div><p>
 
 唐浩
 
