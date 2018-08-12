@@ -88,6 +88,7 @@
 <a name=69>
 <h1 align="center"><b>英议员和医生致信首相 吁调查尸体展</b></h1>
 <div align="center"><img src="img/real-body-600x340.jpg" width=640></div>
+ 
 <div align="center">英国伯明翰国家展览中心（NEC）举办“真实人体展”。(Melanie Sun/Epoch Times)</div><p>
 【大纪元2018年08月10日讯】（大纪元记者鲍天雨英国伦敦报导）8月6日，伦敦召开了有关制止在英国伯明翰国家展览中心（NEC）举办的“真实人体展”（The Real Bodies exhibition）研讨会，会上公布了两封呼吁调查尸体来源并完善相关法律的公开信。
 
