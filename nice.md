@@ -135,7 +135,7 @@
 <hr>
 <a name=73>
 <h1 align="center"><b>获刑13年的610主任 涉首例致死法轮功学员案</b></h1>
-<div align="center"><img src="img/b16a1deb6e92dbb591ebd47f7bab0385_1_-1_art.jpg" width=640></div>
+<div align="center"><img src="img/b16a1deb6e92dbb591ebd47f7bab0385_1_-1_art.jpg" width=240></div>
 <div align="center">全国第一个报导出来被迫害致死的法轮功学员──招远市赵金华 （明慧网）</div><p>
 
 【大纪元2018年08月11日讯】（大纪元记者穆清综合报导）原山东烟台市“610办公室”主任姜忠勤，因受贿犯罪，近期，被判处有期徒刑13年。
