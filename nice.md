@@ -98,7 +98,7 @@
 
 <hr><a name=79>
 <h1 align="center"><b>中共全国围堵P2P访民 强迫留指纹采血样</b></h1>
-<div align="center"><img src="img/Screen-Shot-2018-07-24-at-12.11.32-600x400" width=640></div>
+<div align="center"><img src="img/Screen-Shot-2018-07-24-at-12.11.32-600x400.jpg" width=640></div>
 <div align="center">许多想进京抗议的P2P投资者被当地官员拦截。（视频截图）</div><p>
 
 【大纪元2018年08月12日讯】（大纪元记者徐简综合报导）上周一（8月6日），王先生在北京的家中被警察拘捕， 说他帮助组织了P2P金融难民8月6日到北京银保监会前的集会。
