@@ -7,12 +7,12 @@
 <h2><a href="https://github.com/goodabc/GCC/blob/master/xgpl.md"><b>《共产主义的终极目的》 相关评论</a></b></h2>  
 <h2><a href="https://github.com/no1show/show1/blob/master/whss.md"><b>中共意识形态之理性批判</a></b></h2> 
 <h2><a href="https://github.com/no1show/show1/blob/master/gcdsy.md"><b>评《共产党宣言》</a></b></h2> 
-<h2><a href="https://github.com/no1show/show1/blob/master/jgrc.md"><b>【中国人权】</a></b></h2>
+<!-- <<h2><a href="https://github.com/no1show/show1/blob/master/jgrc.md"><b>【中国人权】</a></b></h2> -->
 <h2><a href="https://github.com/no1show/show1/blob/master/7m.md"><b>【大纪元2018年07月评论】</a></b></h2> 
 <h2><a href="https://github.com/no1show/show1/blob/master/6m.md"><b>【大纪元2018年06月评论】</a></b></h2> 
 <h2><a href="https://github.com/no1show/show1/blob/master/5m.md"><b>【大纪元2018年05月评论】</a></b></h2> 
    
-【大纪元2018年08月评论目录】 :<p>
+【大纪元2018年08月评论、时事目录】 :<p>
 <b>
 <a href=#54>54. 夏小强：中共溃败 抛出王沪宁顶罪？</a><br>
 <a href=#53>53. 周晓辉：从天时地利人和说中美对决结局</a><br>
