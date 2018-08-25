@@ -154,8 +154,6 @@
 </b>
  <hr><a name=137>
 <h1 align="center"><b>中国男子误会深 南美女子智慧化解</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=600></div>
-<div align="center">XXX</div><p>
 
 【大纪元2018年08月24日讯】（大纪元记者周鑫澳洲珀斯报导）南美洲女子艾丝梅拉达（Esmeralda）6年前移民澳洲珀斯。她很少有机会跟中国人讲话，甚至从未预料到自己会跟一位充满敌意的中国男子展开辩论，而她居然能让那位男子平静下来聆听她的述说。
 
