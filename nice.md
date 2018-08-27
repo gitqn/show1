@@ -23,8 +23,6 @@
 
 <hr><a name=152>
 <h1 align="center"><b>张林：非洲猪瘟肆虐中国</b></h1>
-<div align="center"><img src="img/XXX.jpg" width=600></div>
-<div align="center">XXX</div><p>
 
 【大纪元2018年08月27日讯】一个月前，看到网上有零零碎碎中国猪瘟的信息，很多人都不太以为然。因为传统中国猪瘟经常发作，但损失不大，大家已经习以为常。
 
