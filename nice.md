@@ -13,7 +13,7 @@
 <h2><a href="https://github.com/no1show/show1/blob/master/6m.md"><b>【大纪元2018年06月评论】</a></b></h2> 
 <h2><a href="https://github.com/no1show/show1/blob/master/5m.md"><b>【大纪元2018年05月评论】</a></b></h2> 
    
-【大纪元2018年08月评论、时事目录-2】 :<p>
+<h1 align="center"><b>【大纪元2018年08月评论、时事目录-2】  </b></h1><p>
 <b>
 <a href=#149>149. 古玉文：央视新闻联播的七大“功能”</a><br>
 <a href=#148>148. 颜丹：“一辈子都找不回”失踪儿童的背后</a><br></b>
